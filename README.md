@@ -21,7 +21,7 @@ I can say that already learn some languages, but, this section will be always un
 
 # ⚡ Fun Facts:
 
-- My favorite anime in the whole world is Steins Gate (It get's better after 800 episodes LOL) 
+- My favorite anime in the whole world is Steins Gate
 - My favorite tv show is Bojack Horseman ~I don't understand how people lives🐴 ~
 - In my teens I wanted to be a professional basketball player
 
